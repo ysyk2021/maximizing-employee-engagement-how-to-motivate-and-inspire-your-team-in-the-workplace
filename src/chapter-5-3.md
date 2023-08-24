@@ -1,5 +1,3 @@
-Offering Professional Development and Training Opportunities
-===============================================================================================================================
 
 Providing meaningful work and opportunities for growth is critical to maximizing employee engagement. In this chapter, we will explore strategies for offering professional development and training opportunities, including identifying employee development needs, providing ongoing feedback and coaching, and offering opportunities for advancement.
 

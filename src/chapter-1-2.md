@@ -1,5 +1,3 @@
-Historical Perspectives on Employee Engagement Theory and Practice
-==================================================================================================================
 
 Employee engagement has been a topic of interest for researchers, employers, and employees alike for many years. In this chapter, we will explore the historical perspectives on employee engagement theory and practice.
 

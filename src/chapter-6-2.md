@@ -1,5 +1,3 @@
-Listening to and Valuing Team Members' Opinions and Ideas
-============================================================================================================
 
 Encouraging communication and feedback is critical to maximizing employee engagement. In this chapter, we will explore strategies for developing effective communication and feedback processes, including active listening techniques, creating a safe and open environment for feedback, and incorporating team members' ideas into decision-making.
 

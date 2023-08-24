@@ -1,5 +1,3 @@
-Defining Employee Engagement and Its Importance in the Workplace
-================================================================================================================
 
 Employee engagement is a critical component of a successful and productive workplace. In this chapter, we will define employee engagement and explore its importance in the workplace.
 

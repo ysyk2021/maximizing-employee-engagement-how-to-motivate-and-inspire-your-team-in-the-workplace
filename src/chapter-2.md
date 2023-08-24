@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Psychology of Employee Engagement
-==============================================================
 
 Understanding the psychology of employee engagement is critical to maximizing employee motivation and productivity. In this chapter, we will explore the different factors that impact employee engagement effectiveness, common barriers to employee engagement, and the role of motivation and inspiration in employee engagement.
 

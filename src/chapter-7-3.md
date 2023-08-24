@@ -1,5 +1,3 @@
-Using Technology and Data to Track and Enhance Engagement
-=============================================================================================================================
 
 Leveraging technology and tools is critical to maximizing employee engagement. In this chapter, we will explore strategies for using technology and data to track and enhance engagement, including implementing engagement software, leveraging data analytics, and using social media for communication and collaboration.
 

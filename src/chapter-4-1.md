@@ -1,5 +1,3 @@
-Developing Strategies for Creating a Positive Workplace Culture
-=================================================================================================================
 
 Creating a positive workplace culture is critical to maximizing employee engagement. In this chapter, we will explore strategies for developing effective approaches to creating a positive workplace culture, including promoting work-life balance, recognizing and rewarding good performance, and fostering a sense of community and belonging.
 

@@ -1,5 +1,3 @@
-Building Trust, Respect, and Collaboration Among Team Members
-===============================================================================================================
 
 Creating a positive workplace culture is critical to maximizing employee engagement. In this chapter, we will explore strategies for building trust, respect, and collaboration among team members, creating a supportive work environment that fosters engagement and productivity.
 

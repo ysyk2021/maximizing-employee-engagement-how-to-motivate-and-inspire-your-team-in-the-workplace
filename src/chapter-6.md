@@ -1,5 +1,3 @@
-Chapter 6: Encouraging Communication and Feedback
-=================================================
 
 Encouraging communication and feedback is critical to maximizing employee engagement. In this chapter, we will explore strategies for developing effective communication and feedback skills, listening to and valuing team members' opinions and ideas, and providing constructive feedback and recognition.
 

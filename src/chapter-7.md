@@ -1,5 +1,3 @@
-Chapter 7: Leveraging Technology and Tools for Employee Engagement
-==================================================================
 
 Leveraging technology and tools is critical to maximizing employee engagement. In this chapter, we will explore the different technologies and tools available for employee engagement, selecting and implementing tools that are best suited to your team's engagement needs, and using technology and data to track and enhance engagement.
 

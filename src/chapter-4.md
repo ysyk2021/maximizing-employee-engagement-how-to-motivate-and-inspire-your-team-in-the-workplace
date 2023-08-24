@@ -1,5 +1,3 @@
-Chapter 4: Creating a Positive Workplace Culture
-================================================
 
 Creating a positive workplace culture is critical to maximizing employee engagement. In this chapter, we will explore strategies for creating a positive workplace culture, building trust, respect, and collaboration among team members, and fostering a sense of purpose and mission in the workplace.
 

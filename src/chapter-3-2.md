@@ -1,5 +1,3 @@
-Identifying Areas of Engagement and Areas for Improvement
-=======================================================================================================================
 
 Identifying areas of engagement and areas for improvement is essential to maximizing motivation and inspiration in the workplace. In this chapter, we will explore how to identify areas of engagement and areas for improvement through assessing your team's engagement levels and needs.
 

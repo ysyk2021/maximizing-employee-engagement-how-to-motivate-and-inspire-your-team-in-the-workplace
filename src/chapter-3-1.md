@@ -1,5 +1,3 @@
-Developing Strategies for Assessing Your Team's Engagement Levels and Needs
-=========================================================================================================================================
 
 Assessing your team's engagement levels and needs is essential to maximizing motivation and inspiration in the workplace. In this chapter, we will explore strategies for assessing your team's engagement levels and needs effectively.
 

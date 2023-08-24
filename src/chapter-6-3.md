@@ -1,5 +1,3 @@
-Providing Constructive Feedback and Recognition
-==================================================================================================
 
 Providing constructive feedback and recognition is critical to maximizing employee engagement. In this chapter, we will explore strategies for providing effective feedback and recognition, including setting goals and expectations, using specific examples, and offering opportunities for growth and development.
 

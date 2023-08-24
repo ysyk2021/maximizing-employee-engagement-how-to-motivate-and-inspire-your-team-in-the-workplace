@@ -1,5 +1,3 @@
-Building Resilience and Managing Stress During Times of Uncertainty
-===============================================================================================================
 
 Managing change and transitions can be challenging, especially during times of uncertainty. In this chapter, we will explore strategies for building resilience and managing stress during times of change and uncertainty, including developing a self-care plan, practicing mindfulness, and seeking support.
 

@@ -1,5 +1,3 @@
-Identifying Common Barriers to Employee Engagement
-==================================================================================================================
 
 Understanding the common barriers to employee engagement is essential to maximizing motivation and inspiration in the workplace. In this chapter, we will explore some of the common barriers that can prevent employees from being fully engaged in their work.
 

@@ -1,5 +1,3 @@
-Creating a Plan for Maximizing Employee Engagement
-================================================================================================================
 
 Assessing your team's engagement levels and needs is critical to maximizing employee engagement. In this chapter, we will explore strategies for assessing employee engagement, including creating an engagement survey, analyzing results, and developing a plan for improving engagement.
 

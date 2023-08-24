@@ -1,5 +1,3 @@
-Understanding the Role of Motivation and Inspiration in Employee Engagement
-===========================================================================================================================================
 
 Understanding the psychology of employee engagement is essential to maximizing motivation and inspiration in the workplace. In this chapter, we will explore the role of motivation and inspiration in employee engagement.
 

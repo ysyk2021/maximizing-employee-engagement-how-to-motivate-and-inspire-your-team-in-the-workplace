@@ -1,5 +1,3 @@
-Understanding the Impact of Change and Transitions on Employee Engagement
-=====================================================================================================================
 
 Managing change and transitions can have a significant impact on employee engagement. In this chapter, we will explore the effects of change and transitions on employee engagement and strategies for mitigating negative impacts.
 
@@ -27,5 +25,4 @@ Conclusion
 ----------
 
 Change and transitions can have a significant impact on employee engagement, but employers can take steps to mitigate negative effects. By communicating clearly, providing support and training, recognizing successes, and offering opportunities for feedback and input, employers can create a motivated and engaged workforce that adapts to change and contributes to the organization's success. It is important to understand the effects of change and transitions on employee engagement, such as decreased morale and motivation, reduced productivity, increased turnover, and resistance to change. Employers can mitigate these effects by communicating clearly and frequently, providing training and support, recognizing successes, and offering opportunities for feedback and input.
-
 

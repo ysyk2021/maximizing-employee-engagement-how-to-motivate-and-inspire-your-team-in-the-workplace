@@ -1,5 +1,3 @@
-Selecting and Implementing Tools that are Best Suited to Your Team's Engagement Needs
-=========================================================================================================================================================
 
 Technology and tools can play a significant role in maximizing employee engagement in the workplace. In this chapter, we will explore how to select and implement tools that are best suited to your team's engagement needs.
 
