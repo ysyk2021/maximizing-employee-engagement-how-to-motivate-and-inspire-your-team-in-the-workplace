@@ -6,3 +6,7 @@ Maximizing Employee Engagement: How to Motivate and Inspire Your Team in the Wor
 By following the principles and practices outlined in this book, readers can enhance their understanding of employee engagement and develop the skills needed to motivate and inspire their team in the workplace. Whether you are a manager looking to improve your team's productivity or an individual seeking to enhance your own engagement and job satisfaction, Maximizing Employee Engagement has everything you need to succeed.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
