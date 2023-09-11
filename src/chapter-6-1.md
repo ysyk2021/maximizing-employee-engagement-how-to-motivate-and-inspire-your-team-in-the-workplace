@@ -1,5 +1,4 @@
-Chapter: Developing Effective Communication and Feedback Skills
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing effective communication and feedback skills in maximizing employee engagement. By mastering these skills, leaders can create a culture of open communication, foster meaningful connections, and provide constructive feedback that motivates and inspires their teams.
 

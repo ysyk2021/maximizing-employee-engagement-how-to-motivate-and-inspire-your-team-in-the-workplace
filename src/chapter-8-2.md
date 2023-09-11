@@ -1,5 +1,4 @@
-第章：制定管理转变和适应变革的策略
-=================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 在本章中，我们将探讨有效管理转变并帮助团队适应变化的策略。工作场所的变化是不可避免的，通过制定积极的策略，您可以顺利地应对转变，并在团队中培养出具有弹性和灵活性的文化。
 

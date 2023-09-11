@@ -1,5 +1,4 @@
-Chapter: Understanding the Role of Motivation and Inspiration in Employee Engagement
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the crucial role that motivation and inspiration play in employee engagement. By understanding the dynamics and drivers behind motivation and inspiration, leaders can create an environment that fosters high levels of engagement and empowers their teams to achieve success.
 

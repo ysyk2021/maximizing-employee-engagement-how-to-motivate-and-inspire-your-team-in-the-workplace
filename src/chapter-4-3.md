@@ -1,5 +1,4 @@
-Chapter: Fostering a Sense of Purpose and Mission in the Workplace
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering a sense of purpose and mission in the workplace for maximizing employee engagement. By helping employees connect their work to a larger purpose, leaders can inspire motivation, drive, and a deep sense of fulfillment within their teams.
 

@@ -1,5 +1,4 @@
-Chapter: Developing Strategies for Assessing Your Team's Engagement Levels and Needs
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effectively assessing your team's engagement levels and needs. By implementing a comprehensive assessment process, you can gain valuable insights into the current state of employee engagement and identify areas for improvement. This will enable you to develop targeted strategies to maximize employee engagement in the workplace.
 

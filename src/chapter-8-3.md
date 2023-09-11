@@ -1,5 +1,4 @@
-Chapter: Building Resilience and Managing Stress During Times of Uncertainty
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for building resilience and effectively managing stress during times of uncertainty in the workplace. Uncertain situations can create stress and impact employee engagement, productivity, and well-being. By focusing on building resilience and implementing stress management techniques, leaders can support their teams in navigating through uncertainty and maintaining a positive work environment.
 

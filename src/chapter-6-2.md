@@ -1,5 +1,4 @@
-Chapter: Listening to and Valuing Team Members' Opinions and Ideas
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of listening to and valuing team members' opinions and ideas in maximizing employee engagement. By creating a culture that values open communication, fosters collaboration, and recognizes the contributions of every team member, leaders can motivate and inspire their teams to perform at their best.
 

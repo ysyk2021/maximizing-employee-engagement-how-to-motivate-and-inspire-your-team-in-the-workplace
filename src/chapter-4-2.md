@@ -1,5 +1,4 @@
-Chapter: Building Trust, Respect, and Collaboration Among Team Members
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building trust, respect, and collaboration among team members for maximizing employee engagement. By fostering these essential elements in the workplace, leaders can create a supportive environment that motivates and inspires their teams to perform at their best.
 

@@ -1,5 +1,4 @@
-Chapter: Understanding the Impact of Change and Transitions on Employee Engagement
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the impact of change and transitions on employee engagement in the workplace. Change is inevitable in organizations, and understanding how it affects employee engagement is crucial for leaders who want to motivate and inspire their teams.
 
